@@ -1,5 +1,5 @@
 # 🐭✨ Welcome to Baelz’s Chaos Corner! ✨🐭  
-- Hiya! I’m **Baelz**, but you can just call me **Bae** if you want~  
+- Hiya! I’m **Venus**, but you can just call me **Bae or Baelz** if you want~  
 - I’m **17**, and honestly? Just a little ball of chaos wrapped in quiet moments!!
 - I might look quiet but inside there’s a thousand ideas, random thoughts, and probably a caffeine-fueled hamster wheel spinning nonstop! I'm just that exotic~
 - You can find more about myself in my **pronouns.cc**!!
